@@ -8,7 +8,7 @@
 
 ---
 
-![sora](https://github.com/user-attachments/assets/7f7a36d8-532b-45b1-96ec-5f3eef44af30)
+![sora](https://i.imgur.com/enlBfVM.png)
 
 ---
 
